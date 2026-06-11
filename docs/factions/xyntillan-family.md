@@ -1,0 +1,2 @@
+# The Xyntillan Family
+The original builders and current owners of Castle Xyntillan. Rumored to be using dark magic of some kind to preserve their immortality. Besides Jean-Giscard, no Xyntillan family member has been seen outside the Castle in years.

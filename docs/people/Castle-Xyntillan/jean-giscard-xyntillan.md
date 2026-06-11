@@ -1,0 +1,2 @@
+# Jean-Giscard Xyntillan
+The youngest Count of the Xyntillan family. Jean-Giscard lives with his wife and children in self-imposed exile in a town called Tourssevoy, a four-day journey from Chamrousse. He was sent away from his family at a young age to be raised and educated in the North, and wants nothing to do with his eccentric family and their legacy.
